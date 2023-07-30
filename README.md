@@ -1,5 +1,5 @@
-## Oiii! Eu sou Kpèdé Djidjoho Rodnel Jean-Paterne Dossa
- 😁
+## Oiii! Eu sou Kpèdé Djidjoho Rodnel Jean-Paterne Dossa  😁
+
 
  <div>
    <a href="https://github.com/RodnelDossa">
