@@ -1,4 +1,4 @@
-## Oiii! Eu sou Kpèdé Dhidjoho Rodnel Jean-Paterne Dossa
+## Oiii! Eu sou Kpèdé Djidjoho Rodnel Jean-Paterne Dossa
  😁
 
  <div>
